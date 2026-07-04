@@ -1,1 +1,1 @@
-# MyLearningRemoteRepo
+# Paragon z warzywniaka
